@@ -1,0 +1,1 @@
+# sesiunea10_exercitii
